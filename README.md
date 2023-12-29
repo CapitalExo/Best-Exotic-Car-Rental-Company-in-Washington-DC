@@ -4,12 +4,12 @@ Capital Exotic car Rental Company is your top choice for luxury car rental and e
 They provide a wide range of high-end exotic luxurious vehicles from prestigious brands like Ferrari, Lamborghini, Porsche, Rolls Royce, Range rover and more, all of which are expertly maintained and serviced to guarantee absolutely perfect conditions for your rental.
 Capital Exotic’s Social media Handles:
 1.	[Instagram](https://www.instagram.com/capitalexoticcars/) 
-2.	Facebook: https://web.facebook.com/Capexotc?_rdc=1&_rdr
-3.	LinkedIn: https://www.linkedin.com/company/capital-exotic/mycompany/verification/
-4.	X: https://twitter.com/Capexotic
-5.	Ticktok: https://www.tiktok.com/@capitalexotic
-6.	Pinterest: https://www.pinterest.com/capitalexoticcars/
-7.	YouTube: https://www.youtube.com/@CapitalExoticsShowroom/videos
+2.	[Facebook](https://web.facebook.com/Capexotc?_rdc=1&_rdr)
+3.	[LinkedIn](https://www.linkedin.com/company/capital-exotic/mycompany/verification/)
+4.	[Twitter](https://twitter.com/Capexotic)
+5.	[Ticktok](https://www.tiktok.com/@capitalexotic)
+6.	[Pinterest](https://www.pinterest.com/capitalexoticcars/)
+7.	[YouTube](https://www.youtube.com/@CapitalExoticsShowroom/videos)
 8.	
 They operate in:
 Washington DC:
