@@ -1,5 +1,4 @@
 # Best-Exotic-Car-Rental-Company-in-Washington-DC
-Best Exotic and luxury car rental company in Washington Dc, Maryland and Virginia
 [Capital Exotic](https://capitalexotic.com) car Rental Company is your top choice for luxury car rental and exotic adventures within the USA.
 They provide a wide range of high-end exotic luxurious vehicles from prestigious brands like Ferrari, Lamborghini, Porsche, Rolls Royce, Range rover and more, all of which are expertly maintained and serviced to guarantee absolutely perfect conditions for your rental.
 Capital Exotic’s Social media Handles:
